@@ -1,3 +1,2 @@
-# rickastleywastaken.github.io
-haha lol
-im really fat
+# So you want to know how to be good at life?
+<title>WELL NOW YOU KNOW!</title>
